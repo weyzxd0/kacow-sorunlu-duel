@@ -1,1 +1,0 @@
-# kacow-sorunlu-duel
